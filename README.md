@@ -1,5 +1,5 @@
 # F1-DRIVERS-ANALYSIS
-Absolutely! Here’s an extended version with more details:
+
 
 ---
 
